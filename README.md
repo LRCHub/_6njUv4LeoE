@@ -1,0 +1,53 @@
+# The BONEZ – Zenith[Music Video] / The BONEZ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Look around and fuck around
+I announce you
+Fuck up and down and fuck left
+and right
+Break the model tune up your
+channel
+just let it go, let it loose
+馬鹿野郎
+when the fuck are you going to
+understand this 阿呆
+It's all about,
+All about now
+Pull me up to, High point, Pull
+me up to
+Give me this
+Give me that, you want that?
+All I want to reach is zenith,
+You got that
+Help me, let me take you there
+Growing up in this stupid days
+Let me carve your name in my
+page
+Shout out(!!!)
+Pull me up to, High state, Pull
+me up to
+Give me this give me that,
+But it's not that
+All I want to reach is zenith,
+You got that my mind is alright
+No matter what you scream out
+It won't give a fuck
+Matter what you believe man it
+will give a fuck
+One day, that one day will come
+I can still walk and I'm ready
+to run
+I beiieve I can lead you with
+this sound
+With this sound
+Get low, and now pull me up to
+Pull me up to,
+High point,
+Pull me up to
+Give me this give me that,
+But it's not that
+All I want to reach is zenith,
+You got that my mind is alright
+```
